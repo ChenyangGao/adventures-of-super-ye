@@ -1,5 +1,6 @@
-![cover.png](https://life.115.com/imgload?h=fhnimg_6a96de80618ffe6ef420e638e3a950db025aa965_0_0&i=1&t=0&ss=30f0191338151986b9c50f718bd9476f66cddefd&tt=1788272257 "画图，真实照片，尺寸是20比9
+![cover.avif](https://life.115.com/imgload?h=fhnimg_6abbc7cd1a8f32adf3c39a00dfbcbf406d061382_0_0&i=1&t=0&ss=8fafc0722bbc4ad14ccdd3200583235991f5b9e9&tt=1790691277 "画图，真实照片，尺寸是20比9
 背景一个高科技的未来化学实验室，窗外是未来城市，画面中是一个白脸英俊的中国青年，扎着丸子头，有光照下略微泛着彩色的黑发，戴大金链子，戴高科技手表，穿高科技实验服，左边肩上坐着一个可爱风格的小机器人，机器人眨眼微笑，举起大拇指。旁边有一位肤白貌美的少女，穿着蓝紫色复杂花纹的古装，上面有一些奇怪的霓虹logo，少女肩上是一只小猪佩奇机器人少女拿着一份全息的统计报告，和青年探讨着什么，两人肩并肩一起看报告，外面下雨，玻璃上水珠。")
+<audio src="https://life.115.com/imgload?h=fhnimg_6aa8cf2a2e19a684cd13cd94451588f27ad13032_0_0&i=1&t=0&ss=2f62447e4ea2d965d7024cbfed0f902bbd5a1d88&tt=1789447979" controls loop>Angel With a Shotgun - The Cab.mp3</audio>
 
 ## ‘宗情’的真相
 

@@ -1,5 +1,6 @@
-![cover.png](https://life.115.com/imgload?h=fhnimg_6a96de81ec54ff54e45d786401aa08c0c40c0d26_0_0&i=1&t=0&ss=00746ca1f5deecebfbb7b208c76ac3f0e50453e2&tt=1788272258 "画图，真实照片，尺寸是20比9
+![cover.avif](https://life.115.com/imgload?h=fhnimg_6abbc7cd776dad7ae534bdd1ee26841145820a27_0_0&i=1&t=0&ss=a2a1530aab1101e398c26c5b2cb134a7d5498905&tt=1790691278 "画图，真实照片，尺寸是20比9
 背景一个外星球原生态的丛林旷野，植物奇形怪状，画面中是一个白脸英俊的中国青年，有光照下略微泛着彩色的黑发，戴大金链子，戴高科技手表，穿着高科技宇航服，带玻璃头罩，左边肩上坐着一个可爱风格的小机器人，机器人眨眼微笑，举起大拇指。旁边有一位肤白貌美的少女，穿着黄紫色复杂花纹的古装宇航服，上面有一些奇怪的霓虹logo，少女肩上是一只小猪佩奇机器人少女戴着玻璃头罩，两人手挽手在空中飘浮，他们的玻璃罩很大能把头发遮住，手上戴手套。")
+<audio src="https://life.115.com/imgload?h=fhnimg_6aa8cfed567569da78f609cf7d16495cb05e5147_0_0&i=1&t=0&ss=aed92a21b8d95e658969b3a75fc4b92bc1ecfd37&tt=1789448174" controls loop>空山新雨后 - 音阙诗听_锦零.mp3</audio>
 
 ## 来自星星的我
 
